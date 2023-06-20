@@ -3,3 +3,12 @@
 
 ## Participants（Tel-）：
 Yang Yueying：（+81）080-7322-5721 
+
+
+## Visa application
+
+## Fight ticket
+
+## Hotel reservation
+
+## Schedule
