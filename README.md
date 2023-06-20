@@ -7,7 +7,7 @@
 
 ## Visa application
 
-## Fight ticket
+## Flight ticket
 
 ## Hotel reservation
 
